@@ -93,4 +93,58 @@ También va al frigo otro rato, aunque es bastante sólida de por sí.
 
 Calienta un poco el agua también en el vaso de la batidora, como 1 minuto para
 un cuarto de litro, y añádele las láminas de gelatina; con 4 láminas va
-bien. Muévelo un poco para que se disuelva. 
+bien. Muévelo un poco para que se disuelva. Ralla también la piel de las limas,
+y échaselo al agua disuelta rápidamente (para que no cuaje la gelatina), junto
+con la azúcar morena.
+
+A continuación echa con un cucharón el resto del mascarpone y todo el skyr en el
+vaso de batir y bátelo todo.
+
+<a data-flickr-embed="true"
+href="https://www.flickr.com/photos/atalaya/52066088850/in/datetaken/"
+title="PXL_20220511_071530528"><img
+src="https://live.staticflickr.com/65535/52066088850_30798b113e_z.jpg"
+width="640" height="360" alt="PXL_20220511_071530528"></a><script async
+src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+
+Espera, ¿no te he dicho que lo hagas sobre un plato y, además, cierres con tu
+mano el vaso para que no se esturree nada? Pues hazlo, o resultará en lo que
+puedes ver ahí, un cierto esturreo del contenido. Qué le vamos a hacer, son los
+percances de la cocina. Se limpia y listo.
+
+Una vez molido, se vierte sobre las otras dos capas, que habrás sacado del
+frigo, como es natural:
+
+<a data-flickr-embed="true"
+href="https://www.flickr.com/photos/atalaya/52065615098/in/datetaken/"
+title="PXL_20220511_071603392"><img
+src="https://live.staticflickr.com/65535/52065615098_5e8e50e2aa_z.jpg"
+width="640" height="360" alt="PXL_20220511_071603392"></a><script async
+src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+
+
+Esto sí necesita un buen rato para cuajarse. Yo lo he hecho, como podéis ver,
+muy temprano, pero necesitará al menos dos horas para enfriarse, y también
+cuajarse la gelatina.
+
+## Presentación final
+
+Para presentación final, corté dátiles en pequeñas tiras y los puse formando la
+palabra [ETSIIT](https://etsiit.ugr.es'>ETSIIT), que era donde se celebraba el
+concurso. Como la gelatina puede derretirse dependiendo de la temperatura, es
+mejor que lo lleves en una bolsa de las de los refrigerados del súper. O lo
+tengas en el frigo, que igual tú ni quieres concursos ni nada.
+
+Todas las fotos en [este álbum de
+Flickr](https://www.flickr.com/photos/atalaya/albums/72177720298843730). Esto
+fue lo que quedó, después de que la probara el jurado y todo el público que por
+allí andaba:
+
+<a data-flickr-embed="true"
+href="https://www.flickr.com/photos/atalaya/52066306576/in/album-72177720298843730/"
+title="PXL_20220511_150840181"><img
+src="https://live.staticflickr.com/65535/52066306576_e1d2f8aa57_z.jpg"
+width="640" height="360" alt="PXL_20220511_150840181"></a><script async
+src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+
+Eso es todo. ¡A disfrutarla!
