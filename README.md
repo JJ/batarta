@@ -148,3 +148,10 @@ width="640" height="360" alt="PXL_20220511_150840181"></a><script async
 src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
 
 Eso es todo. ¡A disfrutarla!
+
+## Otras recetas libres
+
+Otros años he presentado los [manzanachos con
+natamole](https://jj.github.io/manzanachos-con-natamole/), ese fue el año que
+gané; y el [pudding nazarí](https://jj.github.io/pudin-nazari/) (me quedé
+tercero de cinco).
